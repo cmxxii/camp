@@ -1,2 +1,3 @@
 # camp
-sporadic cam p log
+scratch-paper day-dream mic-check first-try web-log of Camille Pauline
+photos: https://xxii.blog/
